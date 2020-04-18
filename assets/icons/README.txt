@@ -1,0 +1,1 @@
+Credits to https://game-icons.net/ for the icons in this directory which are licensed under https://creativecommons.org/licenses/by/3.0/
